@@ -219,4 +219,4 @@ PC Tools AntiVirus is available as a full free version, providing all features a
 Experience enhanced security and download PC Tools AntiVirus today to protect your digital life. Your safety online is just a click away!
 
 ---
-**Last updated:** 2026-10-25 10:35:37 UTC
+**Last updated:** 2026-10-25 14:44:40 UTC
